@@ -1,0 +1,2 @@
+# Samsung
+Privetik
